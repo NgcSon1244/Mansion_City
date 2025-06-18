@@ -1,5 +1,6 @@
 
 # ☆Luật của nhóm ☆
+|  Không spam                                        |
 |----------------------------------------------------|
 |  Không tự ý đổi ảnh,nền,… group                    |
 |  Được chửi tục,nói tục tự do                       |
